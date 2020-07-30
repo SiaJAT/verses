@@ -10,5 +10,5 @@ Notes on the Word I've been reflecting on
 ## On Prudence
 1. 29.7.2020 - Proverbs 4 : 23
 
-# On Love
+## On Love
 1. 28.7.2020 - 1 Corinthians 13
