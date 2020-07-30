@@ -7,5 +7,8 @@ Notes on the Word I've been reflecting on
 ## On Perspective
 1. 27.7.2020 - Ecclesiastes 3 : 1-15
 
+## On Prudence
+1. 29.7.2020 - Proverbs 4 : 23
+
 # On Love
-1. 27.7.2020 - 1 Corinthians 13
+1. 28.7.2020 - 1 Corinthians 13
