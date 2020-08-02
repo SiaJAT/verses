@@ -1,6 +1,9 @@
 # Verses
 Notes on the Word I've been reflecting on
 
+## On Hope
+1. Deuteronomy 31 : 8
+
 ## On the Human Condition
 1. 26.7.2020 - Job 14 : 1-12
 
