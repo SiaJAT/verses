@@ -1,6 +1,9 @@
 # Verses
 Notes on the Word I've been reflecting on
 
+## On Companionship / Friendship
+1. 11.8.2020 - Ecclesiastes 4 : 9-12
+
 ## On Healing
 1. 6.8.2020 - Psalm 34 : 4-7, 18
 
