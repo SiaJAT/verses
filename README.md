@@ -19,6 +19,7 @@ Notes on the Word I've been reflecting on
 
 ## On Perspective
 1. 27.7.2020 - Ecclesiastes 3 : 1-15
+2. 13.8.2020 - Deuteronomy 31 : 6
 
 ## On Prudence
 1. 29.7.2020 - Proverbs 4 : 23
