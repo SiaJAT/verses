@@ -13,6 +13,7 @@ Notes on the Word I've been reflecting on
 
 ## On the Human Condition
 1. 26.7.2020 - Job 14 : 1-12
+2. 14.8.2020 - John 3 : 16
 
 ## On Love
 1. 28.7.2020 - 1 Corinthians 13
