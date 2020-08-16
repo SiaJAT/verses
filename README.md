@@ -7,6 +7,9 @@ Notes on the Word I've been reflecting on
 ## On Consistency
 1. 15.8.2020 - Galatians 5 : 25
 
+## On the Eucharist
+1. 16.8.2020 - John 6 : 35 - 65
+
 ## On Healing
 1. 6.8.2020 - Psalm 34 : 4-7, 18
 
