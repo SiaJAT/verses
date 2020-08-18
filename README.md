@@ -23,6 +23,7 @@ Notes on the Word I've been reflecting on
 
 ## On Love
 1. 28.7.2020 - 1 Corinthians 13
+2. 17.8.2020 - Romans 5 : 8
 
 ## On Perspective
 1. 27.7.2020 - Ecclesiastes 3 : 1-15
