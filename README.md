@@ -31,4 +31,5 @@ Notes on the Word I've been reflecting on
 
 ## On Prudence
 1. 29.7.2020 - Proverbs 4 : 23
+2. 19.8.2020 - Matthew 6 : 19-20
 
