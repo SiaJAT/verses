@@ -16,6 +16,7 @@ Notes on the Word I've been reflecting on
 ## On Hope
 1. 1.8.2020 - Deuteronomy 31 : 8
 2. 2.8.2020 - Romans 8: 35, 37-39
+3. 22.8.2020 - Psalm 142
 
 ## On the Human Condition
 1. 26.7.2020 - Job 14 : 1-12
