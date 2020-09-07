@@ -10,6 +10,9 @@ Notes on the Word I've been reflecting on
 ## On the Eucharist
 1. 2020.08.16 - John 6 : 35 - 65
 
+## On Faith
+1. 2020.09.06 - Psalm 95
+
 ## On Healing
 1. 2020.08.06 - Psalm 34 : 4-7, 18
 
