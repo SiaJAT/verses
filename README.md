@@ -26,7 +26,7 @@ Notes on the Word I've been reflecting on
 1. 2020.07.26 - Job 14 : 1-12
 2. 2020.08.14 - John 3 : 16
 3. 2020.08.27 - Ecclesiastes 2 : 1 - 11
-4. 2020.09.07 - Ecclesiastes 6
+4. 2020.09.07 - Ecclesiastes 6 : 7 - 9
 
 ## On Love
 1. 2020.07.28 - 1 Corinthians 13
