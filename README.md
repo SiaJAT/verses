@@ -6,6 +6,7 @@ Notes on the Word I've been reflecting on
 
 ## On Consistency
 1. 2020.08.15 - Galatians 5 : 25
+2. 2020.09.12 - Luke 6 : 43 - 49
 
 ## On the Eucharist
 1. 2020.08.16 - John 6 : 35 - 65
