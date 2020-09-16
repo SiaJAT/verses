@@ -1,6 +1,9 @@
 # Verses
 Notes on the Word I've been reflecting on
 
+## On the Church
+1. 2020.09.15 - 1 Corinthians : 12 - 20
+
 ## On Companionship / Friendship
 1. 2020.08.11 - Ecclesiastes 4 : 9 - 12
 
