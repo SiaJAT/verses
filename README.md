@@ -27,6 +27,7 @@ Notes on the Word I've been reflecting on
 2. 2020.08.02 - Romans 8: 35, 37 - 39
 3. 2020.08.22 - Psalm 142
 4. 2020.09.03 - Psalm 63 : 1 - 4
+5. 2020.09.17 - Psalm 51 : 1 - 2
 
 ## On the Human Condition
 1. 2020.07.26 - Job 14 : 1 - 12
