@@ -39,6 +39,9 @@ Notes on the Word I've been reflecting on
 1. 2020.07.28 - 1 Corinthians 13
 2. 2020.08.17 - Romans 5 : 8
 
+## On Loving
+1. 2020.09.18 - Matthew 5 : 3 - 12
+
 ## On Perspective
 1. 2020.07.27 - Ecclesiastes 3 : 1 - 15
 2. 2020.08.13 - Deuteronomy 31 : 6
