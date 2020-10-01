@@ -54,3 +54,7 @@ Notes on the Word I've been reflecting on
 2. 2020.08.19 - Matthew 6 : 19 - 20
 3. 2020.09.27 - Ezekiel 18 : 25 - 28
 
+## On Sacrifice
+1. 2020.09.30 - Luke 9 : 57 - 62
+
+
