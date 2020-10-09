@@ -11,7 +11,7 @@ Notes on the Word I've been reflecting on
 1. 2020.08.15 - Galatians 5 : 25
 2. 2020.09.12 - Luke 6 : 43 - 49
 3. 2020.09.19 - Luke 8 : 4 - 15
-4. 2020.09.20 - Galations 1 : 10
+4. 2020.09.20 - Galatians 1 : 10
 
 ## On the Eucharist
 1. 2020.08.16 - John 6 : 35 - 65
@@ -54,6 +54,7 @@ Notes on the Word I've been reflecting on
 2. 2020.08.19 - Matthew 6 : 19 - 20
 3. 2020.09.27 - Ezekiel 18 : 25 - 28
 4. 2020.10.03 - Proverbs 13 : 20
+5. 2020.10.08 - Luke 9 : 25
 
 ## On Sacrifice
 1. 2020.09.30 - Luke 9 : 57 - 62
