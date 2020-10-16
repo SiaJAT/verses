@@ -21,6 +21,7 @@ Notes on the Word I've been reflecting on
 1. 2020.09.06 - Psalm 95
 2. 2020.09.08 - 1 Thessalonians 5 : 12 - 22
 3. 2020.09.14 - Proverbs 3 : 5 - 6
+4. 2020.10.16 - Psalm 69 : 6
 
 ## On Healing
 1. 2020.08.06 - Psalm 34 : 4 - 7, 18
