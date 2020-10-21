@@ -33,6 +33,7 @@ Notes on the Word I've been reflecting on
 4. 2020.09.03 - Psalm 63 : 1 - 4
 5. 2020.09.17 - Psalm 51 : 1 - 2
 6. 2020.09.22 - Psalm 73 : 26
+7. 2020.10.20 - John 16 : 22
 
 ## On the Human Condition
 1. 2020.07.26 - Job 14 : 1 - 12
