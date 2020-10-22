@@ -53,6 +53,9 @@ Notes on the Word I've been reflecting on
 2. 2020.08.13 - Deuteronomy 31 : 6
 3. 2020.10.13 - Proverbs 27 : 5
 
+## On Persistence
+1. 2020.10.21 - 1 Corinthians 15 : 58
+
 ## On Prudence
 1. 2020.07.29 - Proverbs 4 : 23
 2. 2020.08.19 - Matthew 6 : 19 - 20
