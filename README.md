@@ -26,6 +26,7 @@ Notes on the Word I've been reflecting on
 ## On Healing
 1. 2020.08.06 - Psalm 34 : 4 - 7, 18
 2. 2020.10.22 - Matthew 11 : 28 - 30
+3. 2020.11.19 - Psalm 147 : 3
 
 ## On Hope
 1. 2020.08.01 - Deuteronomy 31 : 8
