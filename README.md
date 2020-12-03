@@ -72,5 +72,6 @@ Notes on the Word I've been reflecting on
 
 ## On Sacrifice
 1. 2020.09.30 - Luke 9 : 57 - 62
+2. 2020.12.02 - Matthew 10 : 34
 
 
