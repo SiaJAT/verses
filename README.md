@@ -25,6 +25,9 @@ Notes on the Word I've been reflecting on
 4. 2020.10.16 - Psalm 69 : 6
 5. 2020.11.29 - Psalm 26 : 2 - 3
 
+## On Gratitude
+1. 2020.12.12 - 1 Thessalonians 5 : 16
+
 ## On Healing
 1. 2020.08.06 - Psalm 34 : 4 - 7, 18
 2. 2020.10.22 - Matthew 11 : 28 - 30
