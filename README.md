@@ -56,6 +56,7 @@ Notes on the Word I've been reflecting on
 ## On Love
 1. 2020.07.28 - 1 Corinthians 13
 2. 2020.08.17 - Romans 5 : 8
+3. 2020.12.14 - Psalm 8 : 3 - 4
 
 ## On Loving
 1. 2020.09.18 - Matthew 5 : 3 - 12
