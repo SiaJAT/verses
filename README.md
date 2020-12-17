@@ -24,6 +24,7 @@ Notes on the Word I've been reflecting on
 3. 2020.09.14 - Proverbs 3 : 5 - 6
 4. 2020.10.16 - Psalm 69 : 6
 5. 2020.11.29 - Psalm 26 : 2 - 3
+6. 2020.12.16 - Psalm 88 : 1 - 2	
 
 ## On Gratitude
 1. 2020.12.12 - 1 Thessalonians 5 : 16
