@@ -14,6 +14,7 @@ Notes on the Word I've been reflecting on
 4. 2020.09.20 - Galatians 1 : 10
 5. 2020.10.11 - Luke 11 : 33 - 36
 6. 2020.11.21 - John 8 : 7
+7. 2020.12.19 - Colossians 3 : 12
 
 ## On the Eucharist
 1. 2020.08.16 - John 6 : 35 - 65
