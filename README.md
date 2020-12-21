@@ -67,6 +67,7 @@ Notes on the Word I've been reflecting on
 1. 2020.07.27 - Ecclesiastes 3 : 1 - 15
 2. 2020.08.13 - Deuteronomy 31 : 6
 3. 2020.10.13 - Proverbs 27 : 5
+4. 2020.12.20 - Isaiah 45 : 8
 
 ## On Persistence
 1. 2020.10.21 - 1 Corinthians 15 : 58
